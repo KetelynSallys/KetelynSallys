@@ -1,4 +1,4 @@
-### Seja bem vindo ao meu doce delirio 👽🪐🛸
+### Takk for besøket 👽🪐🛸
 <div align="center">
   <a href="https://github.com/KetelynSallys">
   
